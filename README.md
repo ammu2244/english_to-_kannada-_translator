@@ -1,1 +1,0 @@
-# english_to-_kannada-_translator
